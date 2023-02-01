@@ -1,2 +1,2 @@
-### Hi there 👋 Diovane rodrigues
+### Hi dear 👋, Diovane rodrigues
 
